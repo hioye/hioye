@@ -4,4 +4,4 @@
 
 https://ivory-gaura-57e.notion.site/60d63bcefee14a7b81b443ac83f99954
 
-![image](https://user-images.githubusercontent.com/89329457/131241370-70272f8b-93f4-4358-8caf-99e08a9107a2.png)
+![image](https://user-images.githubusercontent.com/89329295/131237214-915ab6bb-aa88-4b79-ba2e-529f8df00557.png)
